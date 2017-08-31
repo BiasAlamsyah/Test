@@ -1,0 +1,3 @@
+irrashaimase 
+dozo goyukkuri
+arigatou gozaimashita
